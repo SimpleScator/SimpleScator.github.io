@@ -1,1 +1,0 @@
-# SimpleScator.github.io
